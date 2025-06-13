@@ -1,0 +1,2 @@
+# Escala cinza
+
